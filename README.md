@@ -13,7 +13,7 @@
  * 獸娘小伙伴
 
 #
-
+![Imgur](http://i.imgur.com/jBYbrZu.png)
 # #
 線上看
 http://bangumi.bilibili.com/anime/5796
