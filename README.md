@@ -1,3 +1,18 @@
-# My Awesome Book
+# #兽娘动物园
+#### Welcome to ようこそジャパリパーク！
 
-This file file serves as your book's preface, a great place to describe your book's content and ideas.
+#
+* 其他翻譯名稱
+ * けものフレンズ
+ * 動物好朋友
+ * 獸娘動物園
+ * 動物朋友
+ * 動物好友
+ * 獸娘小伙伴
+
+#
+
+# #
+線上看
+http://bangumi.bilibili.com/anime/5796
+
